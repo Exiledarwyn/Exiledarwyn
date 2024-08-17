@@ -1,9 +1,5 @@
 ┏━━━━━━━━━━━━━━━✦✗✦━━━━━━━━━━━━━━━┓
 
-      𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓜𝔂 𝓟𝓻𝓸𝓯𝓲𝓵𝓮
-
-┗━━━━━━━━━━━━━━━✦✗✦━━━━━━━━━━━━━━━┛
-
 I AM A MINOR. PLEASE KEEP THIS IN MIND WHILE SPEAKING TO ME.
 
 •◦ ✿ 𝒩𝒶𝓂𝑒: Rosalie / Rosafina / Rosa / Fina ✿ ◦•
